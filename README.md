@@ -1,1 +1,0 @@
-# Activitat15-LM
